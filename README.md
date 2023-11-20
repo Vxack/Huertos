@@ -1,0 +1,2 @@
+# Huertos
+ Un huerto es un área de tierra cultivada donde se cultivan plantas, principalmente hortalizas, hierbas, frutas o flores. Puede ser pequeño, como un jardín en casa, o más extenso, como un campo agrícola. Los huertos son lugares destinados a la producción de alimentos o a la jardinería, y su tamaño y propósito pueden variar ampliamente. La actividad de cultivar un huerto implica la siembra, cuidado y cosecha de plantas con el fin de obtener productos comestibles o simplemente disfrutar de la belleza de las plantas ornamentales.
